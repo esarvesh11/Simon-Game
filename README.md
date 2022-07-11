@@ -1,1 +1,1 @@
-# Hope you will Enjoy🤩 this Simon Game..👻
+I hope you Enjoy🤩 playing this Simon game...👻
